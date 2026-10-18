@@ -33,12 +33,12 @@ Professional wrestling, radios/radio broadcasting/anything related to radios, bi
 </p>
 
 <p align="center">
-obvious DNI criteria, pro-israel, MAGA, pro-trump, pedo/zoo/necrophiles, radqueers
+obvious DNI criteria, pro-israel, MAGA, pro-trump, pedo/zoo/necrophiles, radqueers, Vince McMahon supporters
 </p>
 
 <p align="center">
   <b>DISCLAIMER:</b>
-Xylo, if you see this, please do not contact me. I want no affiliation with you knowing who you are and what you've done. There is evidence behind this, and avoiding it will not make you the better person, make things go away, nor will it change your actions or undo the hurt you've caused. Karma is a bitch, she truly is, and may she bite you in the ass.
+Xylo, if you see this, please do not contact me. I want no affiliation with you knowing who you are and what you've done. There is evidence behind your actions, and avoiding it will not make you the better person, make things go away, nor will it change your actions or undo the hurt you've caused. There is a special pit of Dante's Inferno for people such as yourself. Karma is a bitch, she bites hard, and may she bite you directly in the ass. 
 </p>
 
 <hr>
