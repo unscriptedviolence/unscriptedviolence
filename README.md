@@ -1,16 +1,39 @@
-## Hi there 👋
+<p align="center">
+<img width="736" height="413" alt="image" src="https://i.postimg.cc/Z5N5btYD/Smack-Down-11-21-14-Dean-Ambrose-s-Survival-Kit.jpg" >
+</p>
 
-<!--
-**unscriptedviolence/unscriptedviolence** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<b>" Standing here</b> , looking across the ring at me , do you feel like a <b>CHAMPION?</b> <b>"</b>
+</p>
 
-Here are some ideas to get you started:
+<hr>
+<p align="center">
+I am <b>Moxley,</b> though may be known as Dean, Finn, or other names. Major wrestling fan, future pro wrestler. I am punk, straight-edge, and an anarchist. 
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+
+</p>
+
+<p align="center">
+On Ponytown, I can usually be found around docks or the library. I most often use wrestling ponies (Dean Ambrose/Jon Moxley, Seth Rollins, Kane, Kenny Omega, ect), though I may be using ponies from my other interests.
+
+</p>
+<hr>
+<p align="center">
+<b>! INTERESTS !</b>
+</p>
+
+<p align="center">
+Professional wrestling, radios/radio broadcasting/anything related to radios, biohazards, nuclear physics/history/radiation, 200s aesthetics, Adult Swim, Aqua Teen Hunger Force, Mission Hill, Eltingville Club, Superjail!, Moral Orel, Metalocalypse, Rick and Morty, Super Milk-Chan, THe Boondocks, Undergrads, DragonBall, Marvel, Minecraft, Pokemon, WWE2K, Eminem, The Weeknd, linguistics/onomastics, music production, collecting, Conelrad
+</p>
+<hr>
+<p align="center">
+<b>! DNI !</b>
+</p>
+
+<p align="center">
+obvious DNI criteria, pro-israel, MAGA, pro-trump, pedo/zoo/necrophiles, radqueers, har
+</p>
+
+<hr>
